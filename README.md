@@ -1,1 +1,1 @@
-# Bhanuvishwa-Bhanuvishwa.github.io
+# Bhanuvishwa.github.io
